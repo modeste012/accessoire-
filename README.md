@@ -3,35 +3,28 @@ il est possible de cueillir les pissenlits dans son jardin ou dans les prairies,
 
 On peut récolter ses feuilles de mars jusqu'au mois de novembre, tant que c'est fleuris, mais c'est avant la floraison qu'elles sont le moins amère :-)
 
-![plante en fleur](./plante.jpg)
 
-_Photo de [abiris.snv.jussieu.fr](https://meilleur-fer-a-repasser.com)
+_Photo de [meilleur-fer-a-repasser.com](https://meilleur-fer-a-repasser.com/11-criteres-pour-choisir-le-bon-fer-a-repasser/
+)_
 
 # Comment l'identifier
 
 Les feuilles sont toutes à la base, en rosette. Elles sont profondément découpées. 
 
-![Pissenlit ensemble](./ensemble.jpg)
 
 _Photo prise par Pierre Goujon_
 
 Les fleurs, jaunes, sont regroupées en capitule, c'est-à-dire que ce qui paraît être une fleur unique est en réalité un amas de fleurs élémentaires, regroupées dans un réceptacle.
 
-![capitule](./capitule.jpg)
 
 _Photo prise par Pierre Goujon_
 
 La tige creuse, et produit un lait blanc en cas de section.
 
-![section de la tige](./sectionTige.jpg)
 
 _Photo prise par Pierre Goujon_
 
 le pissenlit finit par produire des fruits blanc/gris extrèmement volatiles que l'on s'amuse souvent à souffler :-P
-
-![graines](./graines.jpg)
-
-_Photo prise par Pierre Goujon_
 
 # Comment j'en ai trouvé
 
