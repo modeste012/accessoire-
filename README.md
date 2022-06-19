@@ -5,7 +5,7 @@ On peut récolter ses feuilles de mars jusqu'au mois de novembre, tant que c'est
 
 ![plante en fleur](./plante.jpg)
 
-_Photo de [abiris.snv.jussieu.fr](http://abiris.snv.jussieu.fr)_
+_Photo de [abiris.snv.jussieu.fr](https://meilleur-fer-a-repasser.com)
 
 # Comment l'identifier
 
